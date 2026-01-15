@@ -1,1 +1,1 @@
-A Christmas tree displayed on a webpage🎇🎄
+A Christmas tree displayed on a webpage.🎇🎄
